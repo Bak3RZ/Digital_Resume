@@ -1,2 +1,2 @@
-# Digital_Resume
+# KAGMAK731_PTO2306_GroupA_KagisoMakgtlha_ITW_Final_Digital_Resume
 KAGMAK731_PTO2306_GroupA_KagisoMakgatlha_ITW
